@@ -1,2 +1,2 @@
 # yordantoshev.github.io
-To be expanded
+To be expanded soon
